@@ -1,2 +1,2 @@
-# Link Video : 
-# Link Website : https://putri1-1.github.io/putri1-1/ar_uas.html
+
+# Link Website : https://maisaroh00.github.io/project_uas/mai-master/ar_uas.html
